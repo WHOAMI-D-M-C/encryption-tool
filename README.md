@@ -1,2 +1,3 @@
 # WHOAMI-ENCRYPTION
 🔥🖤👑💪🏻(^^):-):-(🤒🤒
+  Password=KING
